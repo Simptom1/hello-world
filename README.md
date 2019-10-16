@@ -1,2 +1,2 @@
 # hello-world
-It was my first try here)
+I wanna be like weirdo-kiddo
